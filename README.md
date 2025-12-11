@@ -1,1 +1,1 @@
-# aiqitai.github.io
+# [aiqitai.github.io](https://hoo.be/jinrikl)
